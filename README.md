@@ -1,2 +1,3 @@
 # CleanDisk
- Put into Disk C
+F disk shiettttttttt !! Im out 
+Put into Disk C
